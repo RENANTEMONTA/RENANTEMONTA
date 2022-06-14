@@ -1,6 +1,7 @@
 - 👋 Hi, I’m RENANTE M. MONTA JR. 
 - 🏪I'm the Manager of MONTA'S COFFEE SHOP
 - 📞 Contact Us: +6396663506132  
+- 📍 Location: Gais-Guipe, Dasol, Pangasinan
 -  🅵 Facebook: www.facebook.com/Monta'sCoffeeShop
 -  🅸 Instagram: www.instagram.com/Monta'sCoffeeShop 
 - 📫 How to reach me? Email me at renantejrm@gmail.com 
